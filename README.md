@@ -19,4 +19,4 @@ Feel free to explore the repository, provide feedback, or connect with me for fu
 For any inquiries or collaborations, feel free to reach out:
 
 - Email: [palavnishant31@gmail.com]
-- LinkedIn: [Nishant Palav](www.linkedin.com/in/nishantpalav)
+- LinkedIn: (www.linkedin.com/in/nishantpalav)
